@@ -7,4 +7,4 @@
 Demo: http://botnulisonline.fpr.net/
 <br>
 
-![Tulisno Preview](https://i.imgur.com/2XU2qYo.png)
+![Tulisno Preview](https://i.ibb.co.com/JFPGYz8/n.png)
